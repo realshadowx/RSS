@@ -6,7 +6,7 @@ If you're looking to streamline your RSS feed management and take advantage of a
 
 With savings up to [50% off](https://rss.app?fpr=shadow), you can access premium RSS services at a fraction of the cost.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdlJ-sKwouoTD2r5s65SxJ-cgzfw6dETbZ0rVCgi7Xqzoc8i091CTyzb8CVPpgKx7dmxJHptjmFMFqh8O8QJ-7qVEerTWGtxcS6yhGpunB4IEUoiwqWD12Bsgd4v0P-j_30b5gA?key=e0rb4CHZL7yDekEMKcPVoRH_)](https://rss.app?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/dff13a98-3658-4271-b452-d35a6836e257)](https://rss.app?fpr=shadow)
 
 ## Top RSS Discount Coupon Codes for 2025
 
@@ -43,7 +43,7 @@ Details: Looking for a more affordable option? The RSS20 code gives you 20% off 
 
 Details: Not sure which RSS plan suits you? Start with a free 7-day trial and explore all the features. After the trial, enjoy 30% off your first paid subscription. Perfect for those who want to test the waters before fully committing.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdlJ-sKwouoTD2r5s65SxJ-cgzfw6dETbZ0rVCgi7Xqzoc8i091CTyzb8CVPpgKx7dmxJHptjmFMFqh8O8QJ-7qVEerTWGtxcS6yhGpunB4IEUoiwqWD12Bsgd4v0P-j_30b5gA?key=e0rb4CHZL7yDekEMKcPVoRH_)](https://rss.app?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/dff13a98-3658-4271-b452-d35a6836e257)](https://rss.app?fpr=shadow)
 
 ---
 
@@ -67,7 +67,7 @@ When you reach the checkout page, look for the “Promo Code” field. Enter you
 
 Double-check that the discount has been successfully applied before completing your payment. Once confirmed, proceed with the payment and enjoy your discounted RSS services!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdlJ-sKwouoTD2r5s65SxJ-cgzfw6dETbZ0rVCgi7Xqzoc8i091CTyzb8CVPpgKx7dmxJHptjmFMFqh8O8QJ-7qVEerTWGtxcS6yhGpunB4IEUoiwqWD12Bsgd4v0P-j_30b5gA?key=e0rb4CHZL7yDekEMKcPVoRH_)](https://rss.app?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/dff13a98-3658-4271-b452-d35a6836e257)](https://rss.app?fpr=shadow)
 
 ---
 
@@ -107,7 +107,7 @@ If you need advanced features like unlimited feed integrations, team collaborati
 
 The Enterprise Plan is best for large organizations that need bulk subscriptions and dedicated support. Contact the provider for a quote and apply the 50% off code to negotiate your best deal.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdlJ-sKwouoTD2r5s65SxJ-cgzfw6dETbZ0rVCgi7Xqzoc8i091CTyzb8CVPpgKx7dmxJHptjmFMFqh8O8QJ-7qVEerTWGtxcS6yhGpunB4IEUoiwqWD12Bsgd4v0P-j_30b5gA?key=e0rb4CHZL7yDekEMKcPVoRH_)](https://rss.app?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/dff13a98-3658-4271-b452-d35a6836e257)](https://rss.app?fpr=shadow)
 
 ---
 
@@ -124,7 +124,7 @@ RSS (Really Simple Syndication) services are used to manage and aggregate conten
 
 With a variety of plans available, RSS services offer powerful tools for individuals, teams, and businesses looking to stay informed and organized.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdlJ-sKwouoTD2r5s65SxJ-cgzfw6dETbZ0rVCgi7Xqzoc8i091CTyzb8CVPpgKx7dmxJHptjmFMFqh8O8QJ-7qVEerTWGtxcS6yhGpunB4IEUoiwqWD12Bsgd4v0P-j_30b5gA?key=e0rb4CHZL7yDekEMKcPVoRH_)](https://rss.app?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/dff13a98-3658-4271-b452-d35a6836e257)](https://rss.app?fpr=shadow)
 
 ---
 
